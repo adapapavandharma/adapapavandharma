@@ -7,7 +7,7 @@ I clean, validate and document research and health data so the results can be ch
 Each project below names its data source and states what it found, how it was verified,
 and where it fell short.
 
-F-1 OPT through June 2027, STEM OPT-eligible through 2029. Open to relocation.
+Authorized to work in the U.S. Open to relocation.
 **Available now.**
 
 ---
